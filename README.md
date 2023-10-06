@@ -21,6 +21,6 @@ Park Family Farm is a private residence and not open for public visits, but feel
 * [@parkfamilyfarm.nj](https://instagram.com/parkfamilyfarm.nj)
 * [facebook](https://www.facebook.com/parkfamilyfarm.nj/)
 * parkfamilyfarm.nj@gmail.com
-
+* sign up for our [newsletter]([url](https://docs.google.com/forms/d/19ashIpIDlGjL8CdEhBNxvrmADyDH4j0qUlkM0Ztj6jw/)https://docs.google.com/forms/d/19ashIpIDlGjL8CdEhBNxvrmADyDH4j0qUlkM0Ztj6jw/)
 
 
