@@ -1,12 +1,6 @@
 # Park Family Farm
 
-## Where to Buy Eggs
-
-**Farmstand**
-Unfortunately, due to frequent theft, we've had to pause our self-serve egg stand. Instead, if you want to pick up eggs, please call Steve at 551-215-2589 and arrange pickup at the farm. $7/dozen, cash or venmo.
-
-**Cafe**
-You can also buy eggs at [it's a hidden cafe](https://www.itsahiddencafe.com/) on Rt 206 in Hillsborough. They keep a steady stock of our eggs. 
+### Egg sales are on hold until the Spring when we get a new flock of hens. 
 
 ## About us
 We're a tiny farm in Hillsborough NJ along the Millstone River. Our mission is to steward our land, grow healthy food, and be a positive influence on the community.
@@ -15,6 +9,8 @@ We primarily raise hens on pasture and sell delicious eggs. We'll also occasiona
 
 ## Community
 We proudly support the [Franklin Food Bank](https://franklinfoodbank.org/) and [Feeding Hands Pantry](https://www.feedinghandspantry.org/) with eggs and personal donations. If you're local, we ask you consider supporting these organizations in their missions to solve food insecurity and other important issues that affect our neighbors. If you need help with food, these organizations can help.
+
+
 
 
 ## Contact us
