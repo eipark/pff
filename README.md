@@ -1,6 +1,6 @@
 # Park Family Farm
 
-### Egg sales are on hold until the Spring when we get a new flock of hens. 
+### Egg sales are on hold until Spring 2026 when we get a new flock of hens. 
 
 ## About us
 We're a tiny farm in Hillsborough NJ along the Millstone River. Our mission is to steward our land, grow healthy food, and be a positive influence on the community.
