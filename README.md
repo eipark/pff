@@ -1,11 +1,12 @@
 # Park Family Farm
 
-### Egg sales are on hold until Spring 2026 when we get a new flock of hens. 
+### Eggs are on sale now at our farmstand (Spring 2026)
+To purchase, call or text Steve at 551-215-2589 in advance. Meet at the [farmstand on Amsterdam Drive](https://maps.app.goo.gl/xzkfRZbZRnz7wBdp7). **Please do not drive down the driveway or to either home on the property. These are private residences. Thank you**
 
 ## About us
 We're a tiny farm in Hillsborough NJ along the Millstone River. Our mission is to steward our land, grow healthy food, and be a positive influence on the community.
 
-We primarily raise hens on pasture and sell delicious eggs. We'll also occasionally put other produce on our farmstand.
+We primarily raise hens on pasture and sell delicious eggs. We'll also occasionally put other produce on our farmstand. 
 
 ## Community
 We proudly support the [Franklin Food Bank](https://franklinfoodbank.org/) and [Feeding Hands Pantry](https://www.feedinghandspantry.org/) with eggs and personal donations. If you're local, we ask you consider supporting these organizations in their missions to solve food insecurity and other important issues that affect our neighbors. If you need help with food, these organizations can help.
