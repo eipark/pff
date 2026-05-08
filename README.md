@@ -1,7 +1,9 @@
 # Park Family Farm
 
 ### Eggs are on sale now at our farmstand (Spring 2026)
-To purchase, call or text Steve at 551-215-2589 in advance. Meet at the [farmstand on Amsterdam Drive](https://maps.app.goo.gl/xzkfRZbZRnz7wBdp7). **Please do not drive down the driveway or to either home on the property. These are private residences. Thank you**
+To purchase, call or text Steve at 551-215-2589 in advance. Meet at the [farmstand on Amsterdam Drive](https://maps.app.goo.gl/xzkfRZbZRnz7wBdp7). Eggs are $8/dozen.
+
+**Please do not drive down the driveway or to either home on the property. These are private residences. Thank you**
 
 ## About us
 We're a tiny farm in Hillsborough NJ along the Millstone River. Our mission is to steward our land, grow healthy food, and be a positive influence on the community.
